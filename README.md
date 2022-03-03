@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Lora.
-- 👀 I’m interested in computer vision.
+- 👀 Welcome to my world.
 - 🌱 
 - 💞️ 
 - 📫 
